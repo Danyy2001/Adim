@@ -1,0 +1,2 @@
+# Adim
+Chciałbym zdać 
